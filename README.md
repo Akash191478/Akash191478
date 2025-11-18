@@ -3,6 +3,8 @@
 - 🌱 I’m currently learning ty bba(ca)
 - 💞️ I’m looking to collaborate on internship Job  and learning new things
 - 📫 How to reach me ...
+- LinkedIn- https://www.linkedin.com/in/akash-singh-480b46252?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app 
+- Email: akashgopal91478@gmail.com
 - 😄 Pronouns: AKASH
 - ⚡ Fun fact: 😁 
 
